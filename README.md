@@ -19,6 +19,5 @@
 ***
 Gosto de Aprender novas tecnologias e de me desenvolver continuamente.
 
-_Meu Email:_ jaimitopele@gmail.com
 
 
